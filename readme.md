@@ -1,0 +1,1 @@
+https://rapidapi.com/kutay9622/api/climate-change-news99/
